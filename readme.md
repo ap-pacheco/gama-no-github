@@ -1,0 +1,1 @@
+O curso tem uma ótica didática e explora a prática do uso de ferramentas de forma clara.
